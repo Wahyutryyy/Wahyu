@@ -1,2 +1,0 @@
-# Wahyu
-Tryyy
